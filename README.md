@@ -1,0 +1,5 @@
+-👋 Oi, eu sou @messiasx6
+- 👀 Estou interessado em programar
+- 🌱 Atualmente estou aprendendo programação
+- 💞️ Estou procurando colaborar em tudo que possivel
+- 📫 instagram:@messiasx6
